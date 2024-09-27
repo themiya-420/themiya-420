@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi it's a me Mario (Themiya)
+Hi it's a me Themiya
 
 [![](https://visitcount.itsvg.in/api?id=themiya-420&icon=0&color=0)](https://visitcount.itsvg.in)
 
